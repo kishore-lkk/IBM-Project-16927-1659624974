@@ -36,4 +36,4 @@ During the COVID 19 crisis, the requirement of plasma became a high priority and
 
 # PROJECT DEVELOPMENT ⬇<img src="https://thumbs.gfycat.com/TintedFemaleFieldspaniel-size_restricted.gif" width="1050" height="300"> 
 
-### FOR FEEDBACK & QUERIES   <a href="kishorekumar1409@gmail.com"><img src="https://www.computerhope.com/jargon/g/gmail.png" width="20" height="15"></a>
+### FOR FEEDBACK & QUERIES - kishorekumar1409@gmail.com
